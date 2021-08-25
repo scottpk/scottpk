@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @scottpk from Detroit
+- 👀 I’m interested in building computers, home automation, crypto, biking and other things I can't think of off the top of my head
